@@ -1,1 +1,3 @@
-# Carbon-Copies
+Andando alla fermata del pullman ho registrato divers suoni:
+Il rumore dei miei passi, il tintinnio delle mie chiavi in tasca ed il fruscio del vento. Al parco ho sentito il passaggio delle macchine, un signore che cammina fischiettando, il rumore che emette una centralina elettrica  ed il rumore delle foglie e delle. ghiande chi si frantumano quando ci passo sopra
+© 2020 GitHub, Inc.# Carbon-Copies
